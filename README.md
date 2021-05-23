@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning  Bachelor of Computer Applications (BCA).
 - 💞️ I’m looking to collaborate on Good Developer to help me and Contribute in my Projects.
 - 💬 Ask me about anything, I am happy to help.
-- 📫 How to reach me:- Twitter @nayanbawane2
+- 📫 How to reach me:- Twitter @NayanBawane2
 
 
 <!---
